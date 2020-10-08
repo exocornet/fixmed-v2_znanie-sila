@@ -1,0 +1,1 @@
+# fixmed-v2_znaie-sila
